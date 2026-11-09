@@ -14,7 +14,7 @@ Celebrate the creative process with a wizard art shirt inspired by the idea that
 
 **Fit Type** **Unisex**
 
-<a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><img src="https://raw.githubusercontent.com/hamza5598/hamza5598.github.com/main/assets/product-icons/fit-check.svg" alt="Selected Unisex" width="18"></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>&nbsp; Unisex &nbsp;</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>&nbsp; Women &nbsp;</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>&nbsp; Kids &nbsp;</kbd></a>
+<a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>&nbsp; Unisex &nbsp;</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>&nbsp; Women &nbsp;</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>&nbsp; Kids &nbsp;</kbd></a>
 
 **Style(required)**
 
