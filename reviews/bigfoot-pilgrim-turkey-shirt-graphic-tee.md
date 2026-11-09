@@ -8,7 +8,7 @@
 
 ## Bigfoot Pilgrim Turkey shirt | Graphic Tee
 
-⭐ ⭐ ⭐ ⭐ ⭐  **Product spotlight**
+<img src="https://raw.githubusercontent.com/hamza5598/hamza5598.github.com/main/assets/product-icons/rating-stars.svg" alt="5 star rating" width="116">  **Product spotlight**
 
 ✨ Looking for the perfect Bigfoot Pilgrim Turkey shirt? Big dreams start with everyday style!
 Sometimes, the simplest outfits make the biggest impression. ❤️
