@@ -24,7 +24,7 @@ Refreshing your wardrobe or choosing a gift? This Bigfoot Pilgrim Turkey shirt m
 
 ### 🧥 Choose a style
 
-<a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>👕 T-shirt</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>🧥 Hoodie</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>🧶 Sweatshirt</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>👚 Long sleeve</kbd></a>
+<a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><img src="https://raw.githubusercontent.com/hamza5598/hamza5598.github.com/main/assets/product-icons/tshirt.svg" alt="T-shirt" width="42"></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>T-shirt</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><img src="https://raw.githubusercontent.com/hamza5598/hamza5598.github.com/main/assets/product-icons/hoodie.svg" alt="Hoodie" width="42"></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>Hoodie</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><img src="https://raw.githubusercontent.com/hamza5598/hamza5598.github.com/main/assets/product-icons/sweatshirt.svg" alt="Sweatshirt" width="42"></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>Sweatshirt</kbd></a>
 
 ### 🎨 Choose a color
 
