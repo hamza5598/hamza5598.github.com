@@ -30,8 +30,6 @@ For the makers, artists, and daydreamers who know that good things take imaginat
 
 <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><img src="https://raw.githubusercontent.com/hamza5598/hamza5598.github.com/main/assets/product-icons/quantity.svg" alt="Quantity" width="132"></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><img src="https://raw.githubusercontent.com/hamza5598/hamza5598.github.com/main/assets/product-icons/add_to_cart.svg" alt="Add to cart" width="420"></a>
 
-<table><tr><td><strong>Featured<br>offer ends:</strong></td><td><strong>08</strong><br><small>Hours</small></td><td><strong>59</strong><br><small>Mins</small></td><td><strong>45</strong><br><small>Secs</small></td></tr></table>
-
 ## Description
 
 Celebrate the season with the unique and whimsical Bigfoot Pilgrim Turkey shirt. This playful design features Bigfoot dressed in classic pilgrim attire alongside a festive turkey. Whether you’re getting ready for Thanksgiving or simply love quirky apparel, this shirt brings fun and conversation wherever you go.
