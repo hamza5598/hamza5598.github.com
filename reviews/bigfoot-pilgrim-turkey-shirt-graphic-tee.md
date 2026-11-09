@@ -53,9 +53,3 @@ Wear it to cheer from the stands, catch the game at home, or represent your team
 
 If Cleveland baseball is part of your story, make room for a design that lets you wear that enthusiasm your way. Choose the Guardians fan shirt for your collection or as a spirited gift for someone who’s always ready for the next game.
 
-### Why shoppers like Bigfoot Pilgrim Turkey shirt | Graphic Tee
-
-- ✨ A distinctive design for everyday wear or gifting.
-- 👕 Pick the available style, color and size in the official shop.
-- 🎁 A simple gift option for fans of the design.
-- 🔎 Use the product link above for current product details.
