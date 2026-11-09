@@ -1,5 +1,11 @@
 <h1>Bigfoot Pilgrim Turkey shirt | Graphic Tee</h1>
 
+<a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><img src="https://raw.githubusercontent.com/hamza5598/hamza5598.github.com/main/assets/product-icons/quantity.svg" alt="Quantity" width="132"></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><img src="https://raw.githubusercontent.com/hamza5598/hamza5598.github.com/main/assets/product-icons/add_to_cart.svg" alt="Add to cart" width="420"></a>
+
+<p><a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><strong>🛒 Add to cart / buy now →</strong></a></p>
+
+> 🔒 Price, colors, sizes, availability and checkout are available in the official shop.
+
 ### 🚚 Delivery & shipping
 
 - 🛍️ **Order placed:** choose your product options in the official shop.
