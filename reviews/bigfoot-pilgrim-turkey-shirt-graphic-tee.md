@@ -6,9 +6,9 @@
 <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><img src="https://teeoneshirt.com/wp-content/uploads/2025/08/Bigfoot-Pilgrim-Turkey-hoodie.webp" alt="Bigfoot Pilgrim Turkey shirt | Graphic Tee product view" width="150"></a>
 <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><img src="https://teeoneshirt.com/wp-content/uploads/2025/08/Bigfoot-Pilgrim-Turkey-sweatshirt.webp" alt="Bigfoot Pilgrim Turkey shirt | Graphic Tee product view" width="150"></a>
 
-## Bigfoot Pilgrim Turkey shirt | Graphic Tee
+<p><strong>Bigfoot Pilgrim Turkey shirt | Graphic Tee</strong></p>
 
-<img src="https://raw.githubusercontent.com/hamza5598/hamza5598.github.com/main/assets/product-icons/rating-stars.svg" alt="5 star rating" width="116">  **Product spotlight**
+<img src="https://raw.githubusercontent.com/hamza5598/hamza5598.github.com/main/assets/product-icons/rating-stars.svg" alt="5 star rating" width="116">
 
 ✨ Looking for the perfect Bigfoot Pilgrim Turkey shirt? Big dreams start with everyday style!
 Sometimes, the simplest outfits make the biggest impression. ❤️
