@@ -18,10 +18,6 @@ Refreshing your wardrobe or choosing a gift? This Bigfoot Pilgrim Turkey shirt m
 👕 Make the Bigfoot Pilgrim Turkey shirt part of your daily rotation.
 🛍️ Find your favorite and shop your style today!
 
-### 💲 Price
-
-**23.99** · <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>View price</kbd></a>
-
 ### 👕 Choose your fit
 
 <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>✓ Unisex</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>Women</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>Kids</kbd></a>
