@@ -30,13 +30,7 @@ For the makers, artists, and daydreamers who know that good things take imaginat
 
 <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><img src="https://raw.githubusercontent.com/hamza5598/hamza5598.github.com/main/assets/product-icons/quantity.svg" alt="Quantity" width="132"></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><img src="https://raw.githubusercontent.com/hamza5598/hamza5598.github.com/main/assets/product-icons/add_to_cart.svg" alt="Add to cart" width="420"></a>
 
-### 🚚 Delivery & shipping
-
-- 🛍️ **Order placed:** choose your product options in the official shop.
-- 🚚 **Order ships:** view the latest shipping information on the official product page.
-- ✅ **Delivered:** the estimated delivery date is shown at checkout.
-
-## 📄 Description
+## Description
 
 For the makers, artists, and daydreamers who know that good things take imagination and effort, this wizard art shirt celebrates the magic of the creative process. Its thoughtful message makes it a distinctive choice for everyday wear or a gift for someone who loves making things their own.
 
