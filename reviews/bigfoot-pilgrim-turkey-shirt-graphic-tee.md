@@ -12,21 +12,23 @@
 
 Celebrate the creative process with a wizard art shirt inspired by the idea that the magic is in the making, not the taking. A thoughtful pick for artists, makers, and daydreamers who value imagination and the work behind every great idea.
 
-### 👕 Choose your fit
+**Fit Type** **Unisex**
 
 <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>✓ Unisex</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>Women</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>Kids</kbd></a>
 
-### 🧥 Choose a style
+**Style(required)**
 
-<a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><img src="https://vecelshirts.com/wp-content/themes/flatsome-child/assets/wcpa/unisex-t-shirt.svg" alt="T-shirt" width="42"></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>T-shirt</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><img src="https://vecelshirts.com/wp-content/themes/flatsome-child/assets/wcpa/unisex-hoodie.svg" alt="Hoodie" width="42"></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>Hoodie</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><img src="https://vecelshirts.com/wp-content/themes/flatsome-child/assets/wcpa/sweatshirt.svg" alt="Sweatshirt" width="42"></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>Sweatshirt</kbd></a>
+**Unisex T-Shirt**
 
-### 🎨 Choose a color
+<a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><img src="https://vecelshirts.com/wp-content/themes/flatsome-child/assets/wcpa/unisex-t-shirt.svg" alt="T-shirt" width="42"></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>T-shirt</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><img src="https://vecelshirts.com/wp-content/themes/flatsome-child/assets/wcpa/unisex-v-neck.svg" alt="V-Neck" width="42"></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>V-Neck</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><img src="https://vecelshirts.com/wp-content/themes/flatsome-child/assets/wcpa/unisex-hoodie.svg" alt="Hoodie" width="42"></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>Hoodie</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><img src="https://vecelshirts.com/wp-content/themes/flatsome-child/assets/wcpa/sweatshirt.svg" alt="Sweatshirt" width="42"></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>Sweatshirt</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><img src="https://vecelshirts.com/wp-content/themes/flatsome-child/assets/wcpa/unisex-long-sleeve.svg" alt="Long sleeve" width="42"></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>Long sleeve</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><img src="https://vecelshirts.com/wp-content/themes/flatsome-child/assets/wcpa/unisex-tank-top.svg" alt="Tank top" width="42"></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>Tank top</kbd></a>
 
-<a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>⚫ Black</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>⚪ White</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>🔵 Blue</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>🔴 Red</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>🟢 Green</kbd></a>
+**Color(required)** **White**
 
-### 📏 Choose a size
+<a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>⚪ White</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>⚫ Black</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>🔵 Blue</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>🔴 Red</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>🟢 Green</kbd></a>
 
-<a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>S</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>M</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>L</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>XL</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>2XL</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>3XL</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>4XL</kbd></a>
+**Size** **S**
+
+<a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>✓ S</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>M</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>L</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>XL</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>2XL</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>3XL</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>4XL</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>5XL</kbd></a>
 
 ## [🛒 Add to cart / buy now →](https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/)
 
