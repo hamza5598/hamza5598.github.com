@@ -18,13 +18,17 @@ Refreshing your wardrobe or choosing a gift? This Bigfoot Pilgrim Turkey shirt m
 👕 Make the Bigfoot Pilgrim Turkey shirt part of your daily rotation.
 🛍️ Find your favorite and shop your style today!
 
+### 💲 Price
+
+**23.99** · <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>View price</kbd></a>
+
 ### 👕 Choose your fit
 
 <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>✓ Unisex</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>Women</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>Kids</kbd></a>
 
 ### 🧥 Choose a style
 
-<a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><img src="https://raw.githubusercontent.com/hamza5598/hamza5598.github.com/main/assets/product-icons/tshirt.svg" alt="T-shirt" width="42"></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>T-shirt</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><img src="https://raw.githubusercontent.com/hamza5598/hamza5598.github.com/main/assets/product-icons/hoodie.svg" alt="Hoodie" width="42"></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>Hoodie</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><img src="https://raw.githubusercontent.com/hamza5598/hamza5598.github.com/main/assets/product-icons/sweatshirt.svg" alt="Sweatshirt" width="42"></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>Sweatshirt</kbd></a>
+<a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><img src="https://vecelshirts.com/wp-content/themes/flatsome-child/assets/wcpa/unisex-t-shirt.svg" alt="T-shirt" width="42"></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>T-shirt</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><img src="https://vecelshirts.com/wp-content/themes/flatsome-child/assets/wcpa/unisex-hoodie.svg" alt="Hoodie" width="42"></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>Hoodie</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><img src="https://vecelshirts.com/wp-content/themes/flatsome-child/assets/wcpa/sweatshirt.svg" alt="Sweatshirt" width="42"></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>Sweatshirt</kbd></a>
 
 ### 🎨 Choose a color
 
@@ -34,7 +38,7 @@ Refreshing your wardrobe or choosing a gift? This Bigfoot Pilgrim Turkey shirt m
 
 <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>S</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>M</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>L</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>XL</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>2XL</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>3XL</kbd></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><kbd>4XL</kbd></a>
 
-## [🛒 View options & buy now →](https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/)
+## [🛒 Add to cart / buy now →](https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/)
 
 > 🔒 Price, colors, sizes, availability and checkout are available in the official shop.
 
