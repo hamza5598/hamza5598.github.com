@@ -14,7 +14,7 @@ For the makers, artists, and daydreamers who know that good things take imaginat
 
 **Fit Type** **Unisex**
 
-<a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><img src="https://raw.githubusercontent.com/hamza5598/hamza5598.github.com/main/assets/product-icons/fit-Unisex.svg" alt="Fit Unisex" width="76"></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><img src="https://raw.githubusercontent.com/hamza5598/hamza5598.github.com/main/assets/product-icons/fit-Women.svg" alt="Fit Women" width="76"></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><img src="https://raw.githubusercontent.com/hamza5598/hamza5598.github.com/main/assets/product-icons/fit-Kids.svg" alt="Fit Kids" width="76"></a>
+<a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><img src="https://raw.githubusercontent.com/hamza5598/hamza5598.github.com/main/assets/product-icons/fit-unisex.svg" alt="Fit Unisex" width="76"></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><img src="https://raw.githubusercontent.com/hamza5598/hamza5598.github.com/main/assets/product-icons/fit-women.svg" alt="Fit Women" width="76"></a> <a href="https://teeoneshirt.com/product/bigfoot-pilgrim-turkey-shirt/"><img src="https://raw.githubusercontent.com/hamza5598/hamza5598.github.com/main/assets/product-icons/fit-kids.svg" alt="Fit Kids" width="76"></a>
 
 **Style(required)**
 
