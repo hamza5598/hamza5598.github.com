@@ -10,13 +10,7 @@
 
 <img src="https://raw.githubusercontent.com/hamza5598/hamza5598.github.com/main/assets/product-icons/rating-stars.svg" alt="5 star rating" width="116">
 
-✨ Looking for the perfect Bigfoot Pilgrim Turkey shirt? Big dreams start with everyday style!
-Sometimes, the simplest outfits make the biggest impression. ❤️
-Imagine coffee, friends, or a relaxed weekend in your favorite Bigfoot Pilgrim Turkey shirt.
-A Bigfoot Pilgrim Turkey shirt is more than a casual look — it expresses your personality.
-Refreshing your wardrobe or choosing a gift? This Bigfoot Pilgrim Turkey shirt makes it meaningful.
-👕 Make the Bigfoot Pilgrim Turkey shirt part of your daily rotation.
-🛍️ Find your favorite and shop your style today!
+Celebrate the creative process with a wizard art shirt inspired by the idea that the magic is in the making, not the taking. A thoughtful pick for artists, makers, and daydreamers who value imagination and the work behind every great idea.
 
 ### 👕 Choose your fit
 
@@ -46,13 +40,7 @@ Refreshing your wardrobe or choosing a gift? This Bigfoot Pilgrim Turkey shirt m
 
 ## 📄 Description
 
-✨ Looking for the perfect Bigfoot Pilgrim Turkey shirt? Big dreams start with everyday style!
-Sometimes, the simplest outfits make the biggest impression. ❤️
-Imagine coffee, friends, or a relaxed weekend in your favorite Bigfoot Pilgrim Turkey shirt.
-A Bigfoot Pilgrim Turkey shirt is more than a casual look — it expresses your personality.
-Refreshing your wardrobe or choosing a gift? This Bigfoot Pilgrim Turkey shirt makes it meaningful.
-👕 Make the Bigfoot Pilgrim Turkey shirt part of your daily rotation.
-🛍️ Find your favorite and shop your style today!
+Celebrate the creative process with a wizard art shirt inspired by the idea that the magic is in the making, not the taking. A thoughtful pick for artists, makers, and daydreamers who value imagination and the work behind every great idea.
 
 ### Why shoppers like Bigfoot Pilgrim Turkey shirt | Graphic Tee
 
