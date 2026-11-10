@@ -1,4 +1,5 @@
 # SITEMAP
+- [The Hardy Boyz Goats 35th Anniversary 2026 Shirt](products/the-hardy-boyz-goats-35th-anniversary-2026-shirt.md)
 - [The Hardys The Goats 35th Anniversary shirt](products/the-hardys-the-goats-35th-anniversary-shirt.md)
 - [Shove That Ballroom Up Your Fat Ass Shirt](products/shove-that-ballroom-up-your-fat-ass-shirt.md)
 - [Brewers 2026 World Series Champions All Over Print](products/brewers-2026-world-series-champions-all-over-print.md)
