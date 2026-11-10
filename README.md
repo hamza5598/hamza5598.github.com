@@ -14,3 +14,4 @@
 - [Shove That Ballroom Up Your Fat Ass Hat](products/shove-that-ballroom-up-your-fat-ass-hat.md)
 - [If You Need A Problem I'm Here T-Shirts](products/IF%20YOU%20NEED%20A%20PROBLEM%20I%27M%20HERE%20T-Shirt)
 - [Brewers 2026 World Series Champions All Over Print Shirt](products/brewers-2026-world-series-champions-all-over-print-shirt.md)
+- [Hardy Boyz 35th Anniversary GOATs Wrestling Fan Shirt](products/hardy-boyz-35th-anniversary-goats-wrestling-fan-shirt.md)
