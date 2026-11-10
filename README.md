@@ -1,4 +1,5 @@
 # SITEMAP
+- [Brewers 2026 World Series Champions All Over Print](products/brewers-2026-world-series-champions-all-over-print.md)
 - [Bigfoot Pilgrim Turkey shirt Graphic Tee](products/bigfoot-pilgrim-turkey-shirt-graphic-tee.md)
 - [Grandpa Bigfoot T-Shirt – A Grandpa Like Me Is Hard to Find](products/grandpa-bigfoot-t-shirt-a-grandpa-like-me-is-hard-to-find.md)
 - [Ocean Waves Shirt – Coastal Graphic Tee for Beach Lovers](products/ocean-waves-shirt-coastal-graphic-tee-for-beach-lovers.md)
