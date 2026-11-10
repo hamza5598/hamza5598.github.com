@@ -6,3 +6,4 @@
 - [Banjo Kazooie Mario Mashup Graphic T-Shirt](products/banjo-kazooie-mario-mashup-graphic-t-shirt.md)
 - [Guardians AL Champs 2026 Fan Celebration T-Shirt](products/guardians-al-champs-2026-fan-celebration-t-shirt.md)
 - [Y'all Are Scared to Be Corny I Was Born on the Cob Tee](products/y-all-are-scared-to-be-corny-i-was-born-on-the-cob-tee.md)
+- [You Can Get Some Too Shirt Bold Slogan Graphic Tee](products/you-can-get-some-too-shirt-bold-slogan-graphic-tee.md)
