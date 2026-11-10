@@ -4,4 +4,3 @@
 - [Guardians AL Champs 2026 Fan Celebration T-Shirt](products/guardians-al-champs-2026-fan-celebration-t-shirt.md)
 - [Ocean Waves Shirt – Coastal Graphic Tee for Beach Lovers](products/ocean-waves-shirt-coastal-graphic-tee-for-beach-lovers.md)
 - [Funny One-Eyed Cyclops Monster Shirt for Monster Fans](products/funny-one-eyed-cyclops-monster-shirt-for-monster-fans.md)
-- [The Magic Is in the Making Wizard Art T-Shirt Vecel Clothing](products/the-magic-is-in-the-making-wizard-art-t-shirt-vecel-clothing.md)
