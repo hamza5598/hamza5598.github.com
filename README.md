@@ -1,2 +1,2 @@
 # SITEMAP
-- [Bigfoot Pilgrim Turkey shirt | Graphic Tee](reviews/bigfoot-pilgrim-turkey-shirt-graphic-tee.md)
+- [Bigfoot Pilgrim Turkey shirt Graphic Tee](products/bigfoot-pilgrim-turkey-shirt-graphic-tee.md)
