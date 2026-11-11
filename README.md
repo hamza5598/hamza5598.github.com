@@ -19,3 +19,4 @@
 - [Hardy Boyz 35th Anniversary GOATs Wrestling Fan Shirt](products/hardy-boyz-35th-anniversary-goats-wrestling-fan-shirt.md)
 - [2026 Blue Wave FDT Hat](products/2026-blue-wave-fdt-hat.md)
 - [2026 World Series Champions Milwaukee Brewers Front and Back shirt](products/2026-world-series-champions-milwaukee-brewers-front-and-back-shirt.md)
+- [Krushwear Gstate Valks Champions shirt](products/krushwear-gstate-valks-champions-shirt.md)
