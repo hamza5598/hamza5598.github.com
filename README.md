@@ -21,3 +21,4 @@
 - [2026 World Series Champions Milwaukee Brewers Front and Back shirt](products/2026-world-series-champions-milwaukee-brewers-front-and-back-shirt.md)
 - [Krushwear Gstate Valks Champions shirt](products/krushwear-gstate-valks-champions-shirt.md)
 - [Fear )( Retro 80s Cult Classic Fan Art T-Shirt](products/fear-retro-80s-cult-classic-fan-art-t-shirt.md)
+- [Jacob Misiorowski Brew Master Milwaukee Brewers World Series Champions shirt](products/jacob-misiorowski-brew-master-milwaukee-brewers-world-series-champions-shirt.md)
