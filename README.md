@@ -18,3 +18,4 @@
 - [Brewers 2026 World Series Champions All Over Print Shirt](products/brewers-2026-world-series-champions-all-over-print-shirt.md)
 - [Hardy Boyz 35th Anniversary GOATs Wrestling Fan Shirt](products/hardy-boyz-35th-anniversary-goats-wrestling-fan-shirt.md)
 - [2026 Blue Wave FDT Hat](products/2026-blue-wave-fdt-hat.md)
+- [2026 World Series Champions Milwaukee Brewers Front and Back shirt](products/2026-world-series-champions-milwaukee-brewers-front-and-back-shirt.md)
