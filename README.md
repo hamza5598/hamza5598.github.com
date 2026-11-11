@@ -22,3 +22,4 @@
 - [Krushwear Gstate Valks Champions shirt](products/krushwear-gstate-valks-champions-shirt.md)
 - [Fear )( Retro 80s Cult Classic Fan Art T-Shirt](products/fear-retro-80s-cult-classic-fan-art-t-shirt.md)
 - [Jacob Misiorowski Brew Master Milwaukee Brewers World Series Champions shirt](products/jacob-misiorowski-brew-master-milwaukee-brewers-world-series-champions-shirt.md)
+- [2026 MAC Field Hockey Champions shirt](products/2026-mac-field-hockey-champions-shirt.md)
