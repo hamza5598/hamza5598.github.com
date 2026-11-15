@@ -24,3 +24,4 @@
 - [Jacob Misiorowski Brew Master Milwaukee Brewers World Series Champions shirt](products/jacob-misiorowski-brew-master-milwaukee-brewers-world-series-champions-shirt.md)
 - [2026 MAC Field Hockey Champions shirt](products/2026-mac-field-hockey-champions-shirt.md)
 - [Ocean Waves Shirt Coastal Graphic Tee for Beach Lovers](products/ocean-waves-shirt-coastal-graphic-tee-for-beach-lovers.md)
+- [marcus vr merch shirt](products/marcus-vr-merch-shirt.md)
