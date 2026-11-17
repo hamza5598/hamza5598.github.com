@@ -27,3 +27,4 @@
 - [marcus vr merch shirt](products/marcus-vr-merch-shirt.md)
 - [nagi seishiro blue lock shirt](products/nagi-seishiro-blue-lock-shirt.md)
 - [aira dandadan shirt](products/aira-dandadan-shirt.md)
+- [Lee Ho Fooks Vintage Resto 1978 Retro T-Shirt](products/lee-ho-fooks-vintage-resto-1978-retro-t-shirt.md)
