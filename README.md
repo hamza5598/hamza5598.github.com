@@ -28,3 +28,4 @@
 - [nagi seishiro blue lock shirt](products/nagi-seishiro-blue-lock-shirt.md)
 - [aira dandadan shirt](products/aira-dandadan-shirt.md)
 - [Lee Ho Fooks Vintage Resto 1978 Retro T-Shirt](products/lee-ho-fooks-vintage-resto-1978-retro-t-shirt.md)
+- [Zegras and Drysdale '28 Philadelphia Flyers Retro Campaign tee, hoodie and sweatshirt](products/zegras-and-drysdale-28-philadelphia-flyers-retro-campaign-tee-hoodie-and-sweatshirt.md)
