@@ -33,3 +33,4 @@
 - [Funny Santa With Sunglasses And Beer Christmas in July shirt](products/funny-santa-with-sunglasses-and-beer-christmas-in-july-shirt.md)
 - [Cat Christmas Light Reindeer Santa Christmas Cat Lover shirt](products/cat-christmas-light-reindeer-santa-christmas-cat-lover-shirt.md)
 - [Nothin Special Caitlin Clark Shirt for Basketball Fans](products/nothin-special-caitlin-clark-shirt-for-basketball-fans.md)
+- [Snoopy Think Outside The Inbox Retro Peanuts Vintage Comic Shirt Tee](products/snoopy-think-outside-the-inbox-retro-peanuts-vintage-comic-shirt-tee.md)
