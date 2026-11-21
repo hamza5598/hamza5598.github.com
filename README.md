@@ -32,3 +32,4 @@
 - [Spain 2026 World Cup Champions Trophy Title Shirt](products/spain-2026-world-cup-champions-trophy-title-shirt.md)
 - [Funny Santa With Sunglasses And Beer Christmas in July shirt](products/funny-santa-with-sunglasses-and-beer-christmas-in-july-shirt.md)
 - [Cat Christmas Light Reindeer Santa Christmas Cat Lover shirt](products/cat-christmas-light-reindeer-santa-christmas-cat-lover-shirt.md)
+- [Nothin Special Caitlin Clark Shirt for Basketball Fans](products/nothin-special-caitlin-clark-shirt-for-basketball-fans.md)
