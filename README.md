@@ -35,3 +35,4 @@
 - [Nothin Special Caitlin Clark Shirt for Basketball Fans](products/nothin-special-caitlin-clark-shirt-for-basketball-fans.md)
 - [Snoopy Think Outside The Inbox Retro Peanuts Vintage Comic Shirt Tee](products/snoopy-think-outside-the-inbox-retro-peanuts-vintage-comic-shirt-tee.md)
 - [Funny Kitten Daddy Grown Men Hand Picking Shirt](products/funny-kitten-daddy-grown-men-hand-picking-shirt.md)
+- [Wake Forest Gio Lopez Heisman Hopeful Football Shirt](products/wake-forest-gio-lopez-heisman-hopeful-football-shirt.md)
